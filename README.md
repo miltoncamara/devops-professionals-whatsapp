@@ -6,5 +6,5 @@ ___
 3. Educação e respeito a todos os membros, independente da área de especialização, são premissas fundamentais, cuja não observação resultará em desligamento do grupo.
 4. A língua primária do grupo é Português do Brasil. Inglês, Português de Portugal, Espanhol, são aceitos e bem-vindos já que temos membros que falam nativamente essas línguas.
 5. Anúncio de vagas de trabalho e oportunidades profissionais são bem-vindos. Oferta de serviço, produto, representação comercial, não são bem-vindos e devem ser evitados. O propósito desse grupo não é fazer negócio (diretamente) mas sim trocar experiência e estabelecer networking.
-6. Pirataria é crime, sendo assim, qualquer tipo de apologia ao tema, não serão tolerados.
+6. Pirataria é crime, sendo assim, qualquer tipo de apologia ao tema, não serão tolerados. Serão banidos aqueles que solicitarem, fornecerem ou apoiarem o tema.
 7. Proibido conteúdo político.
